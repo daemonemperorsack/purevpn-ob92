@@ -1,4 +1,4 @@
-
+updated PureVPN Connector | static-IP + money-back-guarantee offers the most advanced PureVPN connector, with static-IP and money-back-guarantee. Ideal for users who value privacy
 
 
 
